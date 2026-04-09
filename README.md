@@ -1,2 +1,1 @@
-# ono-tebe-nado-ad
-ono-tebe-nado-ad
+https://github.com/MoreD0ts/ono-tebe-nado-ad/new/main
