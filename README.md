@@ -1,1 +1,1 @@
-https://github.com/MoreD0ts/ono-tebe-nado-ad/new/main
+https://github.com/Diffbjkdnrn/ono-tebe-nado-ad/edit/main/README.md
